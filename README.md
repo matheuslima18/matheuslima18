@@ -1,0 +1,4 @@
+- meu nome e matheus e estou fazendo aula de pensamento computacional com o professor Patrick!
+- minha musica preferida e [youtube](https://www.youtube.com/watch?v=P28P7RI08Rc)
+- eu gosto de fazer dinheiro ![](https://github.com/matheuslima18/matheuslima18/assets/141253534/aef932a4-e02a-4f26-8fd8-d0e2fc05c136)
+- pretendo cursar advocacia!
